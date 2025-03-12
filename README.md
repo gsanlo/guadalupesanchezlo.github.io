@@ -1,1 +1,1 @@
-# guadalupesanchezlo.github.io.
+# guadalupesanchezlo.github.io
